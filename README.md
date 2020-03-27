@@ -26,4 +26,10 @@ My town observes a leniency of few hours during the this lock down period, durin
 
 There are reports that people are not able to get essentials. Well for a country like India, I think it is very hard. I also saw some videos where people are traveling in the trucks that bring essentials. They are mainly laborers/daily wagers. Those dint know what is coming. They do have internet these days, in their mobile. But usually, that is used for entertainment, not for knowledge or important information
 
+There are few pros of this lockdown. I am hearing sounds of birds more often. Tomorrow I will take note of birds I see throught out the day. That would be an interesting activity. Overall, pollution levels have also reduced drastically. Things are cleaning up. Maybe this kind of detox was required. I hope after this pandemic govt. work put more emphasis on environment issues. We are also witnessing some impossible scenarios from environment purview. This stoppage in economic activity is showsing us what earh's atmosphere can be. May be its like the what we used to have 20-30 years ago. I think it will be nice to log the air pollution levels in addition to the covid stats. I will start doing that from tomorrow.
+
+See you on Day 3!
+
+
+
 
