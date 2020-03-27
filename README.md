@@ -14,5 +14,20 @@ I am also doing a course online. This is an opporutnity to learn something as we
 
 Lastly, I am spending time with my parents. It the first time in last 12 years, that I would have spent these many days with them. BTW I left the city, right in time, as I assesses the situtation. ANd was back to my hometown, before the borders were closed. I and my wife were already working from home for last 10 days. And my wife even earlier, so I was sure I will not be exposed to infection. And I used my personal car to travel back to home town. It's a days drive.
 
+# Day 2
+
+The day 2 started normally, woke up early in the morning did Yoga for an hour. The weather is sunny. To be true my work routine has not changed much because of the lock down. The other member of my team are outside India, and I have always been working remotely but sitting at office. You can say my job doesnt require me to go to office at all. And giving a remote working option always, with a need based travel to office might actually help the company. They wont have to pay for the building rent. Which is quite costly in a populous city of India.
+
+This also makes me think that in future I could like to work for company that allows remote working, or I work as a consultant. The business model of cities, with inflated property prices, where you earn and then spend your money for rent or for an inflated propery for years is really like shackles. I need to find a way to break these shackles. Do we need to be the frot runner in this rat race, or not be part of this race at all? I guess, I dont want to be a rat, would you?
+
+My town observes a lineancy of few hours during the this lock down period, during that time peopel can go and buy essentials. However I feel some people are flouting this opportunity. They just go out for a walk. They feel they are invincible. But no one knows how one's body would behave when it is attacked by the COVID-19. India has about 700 cases now, and close to 12 deaths. I am sure we are doing very less of testing. And many people might be just suffering thtough corona like a common flu, unnoticed.
+
+There are reports that people are not able to get essentials. Well for a country like India, I think it is very hard.
+
+
+
+
+
+
 
 
