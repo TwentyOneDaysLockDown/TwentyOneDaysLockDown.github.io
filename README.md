@@ -31,5 +31,45 @@ There are few pros of this lockdown. I am hearing sounds of birds more often. To
 See you on Day 3!
 
 
+# Day 3 and Day 4
+
+Okay, I am merging two days. The last two days have been quite busy in household chores. In India we have a culture of having house maids to help in household chores. Since, the lockdown they are not coming because the public transport has been stopped. They come from nearby villages, work at different houses during the day and go back.
+
+Let's do a stat check. The COVID cases have reached near 900. Also the air quality level is good = 48. This has never happened as far as I can recollect.
+
+I also listed the birds I observed over the day.
+
+- Kite
+- Parrot
+- Mynah
+- Stone Pigeon
+- Bulbul: Nightingale
+- Black Sparrow , dont know its actual name.
+- Crow :)
+- A magpie look alike bird, it had a long tail
+- White colored migratory birds, I need to check the migratory bird of this season.
+
+The common sparrow, which was so abundant many years back.. is no where to be found. Their extinction coincides with few things: Use of unleaded oil, increase in traffic and mobile towers/signals. I dont know really which reason can be attributed to them. it could be increased amount of pesticides in farms..
+
+In the next post I will add a more detials about these birds, with photographs.
+
+It has been raining for past couple of days. Look at a bright sunny day in itself quite a nice feeling. My house has a balcony, and our favouite pass time is sitting in the balcony and relishing black tea also watching people goinn around. These days its mostly watching street dogs and monkeys. The street dogs are not able ot find food these days. My father tries to feed them. He usually does that even normally. The street dogs are like common pet. Many people of the street feeding them. And they have marked territories, steet, parked cars and scooters, street vendor's wagon, every nook and corner do the street.
+
+Coming back to core issue. There were reports that the daily wagers started going back to UP and Bihar from Delhi. Many on foot, for hundreds of kms. Some got gagged at the border od Delhi and UP. They were thousands, and pushing each other. Social distancing?
+The politicians are accusing each other. But who is going to suffer? You knoe the answer very well I think....
+
+Okay see you tomorrow.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
