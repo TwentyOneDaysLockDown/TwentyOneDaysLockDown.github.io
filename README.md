@@ -61,6 +61,42 @@ The politicians are accusing each other. But who is going to suffer? You knoe th
 Okay see you tomorrow.
 
 
+# Day 5
+
+Stat Check
+CoVid cases have approached 1000.
+AQI: 72
+
+The govt. has further reduced the lineancy duration. It is now 10:00 to 13:00. People have also got passes during this time for an un-interrupted movement, and like any situation, people having political contact get such I-Cards. However, it is quite less. There is some strictness. Suddenly, I see govt officials working more responsibly. India is known for very sickening bureaucracy.
+
+Well, my morning started usually, with a Yoga session. One must not bath just after Yoga, there needs to be atleast 45 mins gap. Also one must also not eat just after Yoga. Again a gap of 45 mins. is recommended.
+
+So there is Sun today after a gap of two days. Every thing is refulgent, green. This is the time when I take my scooter and roam around in near countryside. Not this time. With reduced levels of pollution, I am using these Sunny days to boost my Vitamin D naturally. There are some reports that Vitamin D improves immunity. So in some snese I am preparing myself for the infection. That might happen in coming few months. Yoga is also for the same. Some regular physical activity with sunshine vitamin will help improve my immunity.
+
+Anyways, the movement of migrants has increased. To be true I am also a migrant. But right now I am talking about those people who dont have any much money. And with no public transport, they started walking kilometers bare foot. There were a couple of reports few of them died on road. This is really sad. What can I do at this time? What humans can do at this time?
+
+I and my family had a discussion that we are going to do our bit. Help people in whatever way we can, while maintaining social distancing.
+
+The roads are empty, they have become playground for monkeys, donkeys and cows. They are roaming around very freely. Like we humans used to ha ha..
+
+I also spent sometime watching a movie named Parasite. It is on amazon prime video. It is an interesting movies and shows the grim reality of class divide. I had been to South Korea many years back when I was working with a Korean company. The people have a very hirearchichal way of working. One of the Korean manager's talked to me in a demeaning way, and was more like a military personnel. Then O got to know koreans have to do 2 years of military sevice compulsarily. And also them marry very late on an average. It takes almost 35 years for a person to reach a stage in life financially when can support a family. I also got to know from a Korean guy that they marry gals from China. Because mainting a Korean gal is difficult, also those gals dont marry early. I must say I don't know the exact reson as well. But this is a trend I know.
+
+May be it is because of this hirearchichal culture the South Koreans have been able to contian the CoVID threat in time.
+
+Okay I guess lot of banter now. I will report tomorrow. Over and out!
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
