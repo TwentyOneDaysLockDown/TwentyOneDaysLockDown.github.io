@@ -1,3 +1,5 @@
+# About
+
 A log of experiences and thoughts of a random guy living in a random town in India during the 21 days CoVid-19 pandemic lockdown.
 
 # Day 0
