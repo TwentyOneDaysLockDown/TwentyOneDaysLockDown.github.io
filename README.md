@@ -79,11 +79,31 @@ I and my family had a discussion that we are going to do our bit. Help people in
 
 The roads are empty, they have become playground for monkeys, donkeys and cows. They are roaming around very freely. Like we humans used to ha ha..
 
+
+
 I also spent sometime watching a movie named Parasite. It is on amazon prime video. It is an interesting movies and shows the grim reality of class divide. I had been to South Korea many years back when I was working with a Korean company. The people have a very hirearchichal way of working. One of the Korean manager's talked to me in a demeaning way, and was more like a military personnel. Then O got to know koreans have to do 2 years of military sevice compulsarily. And also them marry very late on an average. It takes almost 35 years for a person to reach a stage in life financially when can support a family. I also got to know from a Korean guy that they marry gals from China. Because mainting a Korean gal is difficult, also those gals dont marry early. I must say I don't know the exact reson as well. But this is a trend I know.
 
 May be it is because of this hirearchichal culture the South Koreans have been able to contian the CoVID threat in time.
 
 Okay I guess lot of banter now. I will report tomorrow. Over and out!
+
+# Day 6
+
+The covid cases have reached near 1050. And the AQI is 90. This shows that the economic activity is subtantially low.
+
+This reminds me to tell you about the share market. The BSE-SENSEX which is an average index of top 30 well established companies, it was at 42K during the end of Feb, 2020. Then became 38K when the pandamic started reaching global markets, mainly NYSE. When the lock down was announced last week it became 26K and currently it is at 29K. The IMF head also said that we are going into a deep recession. The other day Mr. Trump also talked about an inevitable recession. It is rare of the rarest occassion when Mr. Trump talked sensibly, looks like his mental capabilities(inabilities) have been hijacked by the sensible scientists around him who are looking on how the pandemic is evolving. He later extended the lock down in the US, which was contrary to his whimsical locution earlier this week. Which he termed as a wish he had. 
+
+On similar lines the PM of India also aplogised to the public for the unease that his decision has caused. Some of the events that have happened after the lockdown are catastrophic for daily wagers. Govt. is taking actions to help this but it is a bitter truth that our country doesnt have resources to handle this situation. Policemen have not been hired for many years, many posts are vacant, and they have been hiring private security companies to help them, for instance traffic management, and the people hired by these private companies are actually migrants. Govt. health facilities are in poor state. Only very few doctors join the govt. hospitals, most of them become consultants to super speciality hospitals. The concept of family physician is no longer existant. Many times I have met different doctors, but later I realized that it is important that I meet same doctor, I must have a family physician, but finding a reliable doctor is very difficult.
+
+Once I checked ratings of a doctor online and went to meet him when I was sick. His fees was on the higher side. I went into his cabin after waiting for so long, I told him that I have cough, cold and fever. And he just started dictating medicine to his assistant doctor. he not even checked my pulse, my breathing or used stethoscope and that was really shocking. Anywyays, I did take the medicine and completed the course. It took me two weeks or so to get well. It was in the year of 2018. Later, I thought of writing a feedback online. I observed that there were few feedback that said similar things. Perhaps the popular website where I saw his rating earlier was moderated unlike the current one which was not moderated strictly. I never went to that doctor again. Since then , I am still searching for a sensible doctor, who is service oriented and not only having money making mentality. But this search has not returned me any good result till now. The online feedbacks seem to paid and moderated.
+
+I have seen doctors, having two I-phones in hand, wearing super expensive watches, and fiddling on mobile while the patient speaks. Are they justifying there responsiblity? People directly going to specialists and not going to a physician first. Overall, the welfare system of medical facilities have failed in India. This is a real problem, in addition to proper education. That I will write about later some point of time.
+
+So, coming back to market, there have been some reports that many people are defualting in China, a similar phenomenon will happen here. What will happen to the banks then? I have some savings in private banks, I hope my hard earned money is safe. The share price of the banks is going down. I need to understand what repercusion it will have on me or on a common man and be prepared for consequences.
+
+Anyways, we must do whatever we can and stop worrying for things that we cant change at all. This is a fuzzy statement, when do we know how much should we try for something? On that note good bye for today.
+
+
 
 
 
