@@ -105,6 +105,24 @@ So, coming back to market, there have been some reports that many people are def
 
 Anyways, we must do whatever we can and stop worrying for things that we cant change at all. This is a fuzzy statement, when do we know how much should we try for something? On that note good bye for today.
 
+# Day 7
+
+Stats Check: Covid cases are now around 1350 and the AQI is at 53.
+
+I feel a bit bad about writing stats for the covid cases, there have been some cases where kids in their teen age have died. Not in India atleast but outside. This is really sad..
+One of my team mates who works in Germany also got infected recently. He is the first one to be infected whom I know personally. I wish a wuick recovery for him. I also got to know that Germany is handling the crisis very well. However, for his case at first the physician suggested a normal flu.
+
+Okay back to India now, a bad news is that, India might see a spike in case counts in coming two weeks. One of the reason is that recently a religious congregation of 2000 people had couple of covid positive cases. And they might have infected these others. It was a 4-5 days long congregation. There were strict rules to not have these big congregations, and it was an irreponsible behaviour. Many of them have returned back t their places, spread across India. A couple of infected people died 2-3 days back. This was happening under the hood. Dont know how it went unnoticed form the eyes of officials. The blame game has started. But the reality is that, this is one of the visible instance which could have already spread to coommunity all over India. The other invisible cases are those, who travelled outside, were asymptomatic and traveled back to India to various place. Govt. claims its still Stage 2, however common sense of a common man says its already in Stage 3 and yet to explode. Coming 2-3 weeks will show the reality. I am going to say a cliche here " Its always gets worst before it gets better".
+
+to be continued...
+
+
+
+
+
+
+
+
 
 
 
