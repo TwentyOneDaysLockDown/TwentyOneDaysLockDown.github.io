@@ -147,6 +147,8 @@ I think I observed birds very similar to these, they fly very high up. And it is
 
 [Himalayan Crow](https://en.wikipedia.org/wiki/Indian_jungle_crow)
 
+[Asian Koyal](https://en.wikipedia.org/wiki/Asian_koel)
+
 There are some more sounds I hear, but I havent seen those birds. I hope I will be able to see them.
 
 
