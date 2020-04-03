@@ -117,6 +117,39 @@ Okay back to India now, a bad news is that, India might see a spike in case coun
 to be continued...
 
 
+# Day 8 and Day 9
+
+The covid active cases have reached 2300 approx, and aqi is 86. Looks like 70-90 is normal aqi in the region.
+
+The rules have been made stricter in my locality, now none can use private vehicles during the lineancy period of 3 hours. One must walk.
+The days are sunny and evenings are rainy. I happened to observe primary and secondry rainbow yesterday. Weather is very nice these days, as I write I can hear birds outside. I love this confinement.
+
+Okay this reminds me that I wanted to add photographs of the birds I observed. I dont have a DSLR, taking photos of these birds with mobile camera was tough, the clarity was bad.
+
+(Blue Whistling Thrush)[https://en.wikipedia.org/wiki/Blue_whistling_thrush]
+I mistook it has Koel. But I am sure I observed koel as well, because I heard the sounds of koel(cuckoo).
+
+(Red-billied blue magpie)[https://en.wikipedia.org/wiki/Red-billed_blue_magpie]
+These don't come near to the houses. I see them across the river, near dense green area.
+
+(Common Myna)[https://en.wikipedia.org/wiki/Common_myna]
+
+(Himalayan Bulbul)[https://en.wikipedia.org/wiki/Himalayan_bulbul#/media/File:The_Himalayan_Bulbul.jpg]
+Looks like some human got inspired from its hairstyle.
+
+(Rock Dove)[https://commons.wikimedia.org/wiki/Category:Birds_of_Himachal_Pradesh#/media/File:A_pigeon_sitting_on_Idol_in_hindu_Temple.jpg]
+
+(Parakeet)[https://en.wikipedia.org/wiki/Slaty-headed_parakeet]
+
+(Bar Headed Goose)[https://www.bbc.com/news/science-environment-30799436]
+I think I observed birds very similar to these, they fly very high up. And it is a migratory bird.
+
+(Himalayan Crow)[https://en.wikipedia.org/wiki/Indian_jungle_crow]
+
+There are some more sounds I hear, but I havent seen those. I hope I will be able to see those.
+
+
+
 
 
 
