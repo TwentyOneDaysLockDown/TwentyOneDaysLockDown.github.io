@@ -5,8 +5,23 @@ A log of experiences and thoughts of a random guy living in a random town in Ind
 # Content
 
 [Day 0](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-0)
+
 [Day 1](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-1)
+
 [Day 2](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-2)
+
+[Day 3 and 4](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-3-and-day-4)
+
+[Day 5](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-5)
+
+[Day 6](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-6)
+
+[Day 7](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-7)
+
+[Day 8 and 9](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-8-and-day-9)
+
+[Day 10 and 11](https://github.com/TwentyOneDaysLockDown/TwentyOneDaysLockDown.github.io/blob/master/README.md#day-10-and-day-11)
+
 
 # Day 0
 
