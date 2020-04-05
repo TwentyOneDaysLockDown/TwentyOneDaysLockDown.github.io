@@ -152,11 +152,18 @@ I think I observed birds very similar to these, they fly very high up. And it is
 There are some more sounds I hear, but I havent seen those birds. I hope I will be able to see them.
 
 
+# Day 10 and Day 11
 
+The total reported covid active cases are now approx 3500 and and the aqi is 50.
 
+The religious gatherring I talked about became the hot topic of discussion. Mojority of new cases are from that event. This also lead to vilifying of that religion across nation, the media played a great role of adding fuel to the fire. It was really a detrimental role of media. The race of viewership can make them do anything and this is a a heinous act. This can lead to riots..but since its curfew everywhere, it dint happen. Three guys from that gathering are from my town. They have been quarantined.
 
+I have been less regular in updating the log and even for my daily yoga, the lathargy is taking on me..  ha ha.. Somtimes it's okay I guess! Some times doing nothing is also fun. Just watching time go by.
 
+Today I re-lived my childhood days, watching birds go to their nests in the evening. They always go from right part of the town to the left part in the evening as a group. And they shine an the evening light of sun. The moon also started peeping out of the white clouds, those clouds became slightly red and murky because of evening light. The moevement of birds in the morning from left to right is unnoticable. But in the evening they fly as a group. That had been my childhood always. Sitting on the armrest of an archiach chair, where my granny would sit, doing some evening prayers. And I just looking towards sky. I never knew when all this went away... and I became part of city..where I rush to my home ar the clock strikes 6 pm. The more time I have been spending at my hometown, the more I am getting a craving to get back to this place as soon as possible. Alas! There is no vocation possible, until the remote working becomes a reality. Till then I will keep this longing alive underneath my bosom.. 
+Playing badminton with my dad for sometime was fun, and then ludo with famliy. Eating evening snacks together, sipping a cup fo coffe in balcony with my parents, and gossip its really satisfying. It has been like stengthening family bonds. There has been an exodus from my town, many kids of my age.. or younger moved to cities to work, for career aspirations, the small town ecosystem could not provide vocations aligned to the education we happened to pursue. I am fortunate to have sepent these many days after so many years with parents. I noticed closely that my mother gets somewhat lethargic while doing household chores..time has really passed by..old age is showing its signs. Even my hairs are greying...
 
+Anyways, let me just enjoy this time :)
 
 
 
